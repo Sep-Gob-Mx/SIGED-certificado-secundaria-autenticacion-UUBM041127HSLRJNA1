@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-UUBM041127HSLRJNA1
+UUBM041127HSLRJNA1
